@@ -10,7 +10,7 @@
 
 
 
-# 🦹‍♂️ La Legión del Mal - Desde Local y Remoto
+# 🦹‍♂️ La Legión del Mal
 =======
 
 
